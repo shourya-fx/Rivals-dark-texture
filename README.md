@@ -60,7 +60,7 @@ Make your Roblox Rivals experience darker, cleaner, and easier on the eyes with 
 🎥 Video Tutorial
 -----------------
 
-(Coming soon – feel free to contribut)
+(Coming soon – feel free to contribute!)
 
 💬 Support & Contributions
 --------------------------
