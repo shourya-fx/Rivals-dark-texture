@@ -1,4 +1,4 @@
-Roblox Rivals Dark Texture Pack
+https://github.com/shourya-fx/Rivals-dark-texture.gitRoblox Rivals Dark Texture Pack
 ================================
 
 Make your Roblox Rivals experience darker, cleaner, and easier on the eyes with this custom Dark Texture Pack. Ideal for players who prefer a sleek and modern look.
